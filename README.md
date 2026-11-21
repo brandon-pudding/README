@@ -3,3 +3,6 @@
 <p align="left">
 $\color{924F3D}\normalsize{\texttt{ 𓏼sam aka pudding }}$ <br>
 <div align="center">
+      <td>
+        <details>
+          <summary><sub> ᛝ oomf ౨ৎ (ily!)𓍼  </summary>
