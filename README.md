@@ -3,4 +3,4 @@
 <p align="center">
   
 </p>
-  $\color{924F3D}\normalsize{\texttt{ 𓏼sam aka pudding }}$ <br>
+$\color{924F3D}\normalsize{\texttt{ 𓏼sam aka pudding }}$ <br>
