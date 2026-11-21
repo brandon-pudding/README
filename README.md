@@ -11,3 +11,8 @@ $\color{924F3D}\normalsize{\texttt{ .ᐟ he/him only , true Brandon . ۫ ·}}$ <
         <details>
           <summary><sub> ੭﹕﹒ᛝ oomf ౨ৎ (ily!)𓍼  </summary>
  <a href=><sub>゛frankֺּׅ𓏽⑅</a>
+
+</div>
+
+
+<h6 align="left"> .ᐟ links 𓊆 <a href="https://sam-bait.atabook.org/">atabook</a> ˎˊ˗
